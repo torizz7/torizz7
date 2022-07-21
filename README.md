@@ -1,3 +1,1 @@
-- 👋 Hi, I’m tori,
-- I’m here for fun
--
+sla oq eu to fazendo aqui man
